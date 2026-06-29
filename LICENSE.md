@@ -1,4 +1,4 @@
-# 
+# VIP mean reversion trading bot extensões for Mac OS | Ultimato mean reversion trading bot extensões for PC Windows. Featuring negociação de futuros and análise de momento — optimized for maximum performance.
 
 
 
